@@ -1,0 +1,1 @@
+# The-Collapse-of-Galactic-Shielding-Black-Hole-Functional-Decay-as-Primordial-Cause-Galactic-Mergers-
